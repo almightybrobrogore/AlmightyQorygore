@@ -1,0 +1,2 @@
+# AlmightyQorygore
+Ya alan suryajanaaaaaa
